@@ -1,0 +1,2 @@
+# TattooShopTrendsin2025WhatsHotandWhattoAvoid
+TattooShopTrendsin2025WhatsHotandWhattoAvoid
